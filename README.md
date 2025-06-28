@@ -3,7 +3,7 @@
 This page was made for no one in particular.  
 I just needed a place to leave these words behind.  
 
-🩸 [go to the site](file:///C:/Users/Kristine%20Chavez/Desktop/rbxxyx/whoami.html) 
+🩸 [go to the site](https://rebzyyx-kms.github.io/xoxo/)
 
 > silence is loud.  
 > Don't stay long.
